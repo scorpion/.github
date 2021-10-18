@@ -1,1 +1,1 @@
-## 👋 Hello there, welcome to Scorpion 🦂
+## 👋 Hi, welcome to Scorpion 🦂
